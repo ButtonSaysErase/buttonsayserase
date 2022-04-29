@@ -1,4 +1,11 @@
-### Hi there 👋
+### The fuck you doing here???
+My name is Max and I'm "working" on stuff. What is that stuff? You tell me I switch it up every day since I can't stay on one item lmao
+
+I only have two socials, mastodon and discord, which are below. There is Twitter but I only use that to post images and videos from my switch and 3ds.
+
+- *Mastodon:* [@erase@banana.dog](https://banana.dog/@erase)
+
+- *Discord:* erase#2908
 
 <!--
 **ButtonSaysErase/buttonsayserase** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
